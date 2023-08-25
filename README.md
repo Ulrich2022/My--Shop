@@ -16,7 +16,8 @@ I sell Wallpapers and music made by me
 
 ![image](https://github.com/Ulrich2022/My--Shop/assets/92866058/138956e8-bb9f-4fd2-abad-37b9d4a955bf)
 
-![image](https://github.com/Ulrich2022/My--Shop/assets/92866058/138956e8-bb9f-4fd2-abad-37b9d4a955bf)
+![image](https://github.com/Ulrich2022/My--Shop/assets/92866058/72a938ab-e2e3-4a0b-8f7e-810e3791db2d)
+
 
 
 
