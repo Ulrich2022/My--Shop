@@ -18,9 +18,11 @@ I sell Wallpapers and music made by me
 
 ![image](https://github.com/Ulrich2022/My--Shop/assets/92866058/72a938ab-e2e3-4a0b-8f7e-810e3791db2d)
 
-And noticed the Wallpaper is not that on my site
+And noticed the Wallpaper is not like up 
 
 It will be the right Format and will have no watermark on it
+
+Format is 1440x3040
 
 For buying Email me at ulrichriebeling3@gmail.com 
 
