@@ -39,3 +39,9 @@ Would be nice if you maybe buy I do wallpaper made by me on My PC and beats and 
 And other things soon 
 
 Thx for buying 🙃
+
+My IG = https://instagram.com/ulrichr2022?utm_source=qr&igshid=MzNlNGNkZWQ4Mg%3D%3D
+
+and discord = Charon I ❤Nour🐻🧸#3667
+
+My Twitch = ulrichr2022 
