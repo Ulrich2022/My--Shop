@@ -19,7 +19,17 @@ I sell Wallpapers and music made by me
 ![image](https://github.com/Ulrich2022/My--Shop/assets/92866058/72a938ab-e2e3-4a0b-8f7e-810e3791db2d)
 
 
+For buying Email me at ulrichriebeling3@gmail.com 
 
+you can buy the Pack 8 Wallpapers for 8$
+
+or buy 1 wallpaper for 1$ each 
+
+only Paypal and Crypto BTC ETH or others what you prefer
+
+when you Email me to order put the nummber showed on the Picture you want to buy in the Email 
+
+then I send you Pay info and right after Payment income I will send you the Product per Email 
 
 Hi I opend my online shop and sell wallpapers made by me and music and other things soon
 
@@ -28,3 +38,4 @@ Would be nice if you maybe buy I do wallpaper made by me on My PC and beats and 
 
 And other things soon 
 
+Thx for buying 🙃
